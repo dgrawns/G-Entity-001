@@ -39,5 +39,5 @@ https://www.youtube.com/watch?v=RWCZ5Tec4P4
 
 https://www.youtube.com/watch?v=k9MFBF0_mjM
 
-https://www.youtube.com/watch?v=CYBy5dctCqg&t=48s
+https://www.youtube.com/watch?v=CYBy5dctCqg
 
