@@ -32,3 +32,12 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=2732733089
 Fair warning: If you delete the nextbot while on-screen effects are active, they might get stuck on and may require either rejoining or restarting map.
 
 Thanks and hope you enjoy! I will probably be updating this while also maybe making others.
+
+VIDEOS:
+
+https://www.youtube.com/watch?v=RWCZ5Tec4P4
+
+https://www.youtube.com/watch?v=k9MFBF0_mjM
+
+https://www.youtube.com/watch?v=CYBy5dctCqg&t=48s
+
